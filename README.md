@@ -1,1 +1,1 @@
-# samad_prectice
+# these is a samad practice 1
